@@ -8,7 +8,7 @@
 ## Dream Caused by the Flight of a Bee Around a Pomegranate a Second Before Awakening (Salvador Dalí)
 2021-12-25<br>
 ![Dream Bee Pomegranate](images/2021-12-25-Dream_Bee_Pomegranate.jpg)
-<br>1000 pieces
+<br>1500 pieces
 
 ## Yasaka Pagoda, Kyoto, Japan
 2021-07-03<br>
